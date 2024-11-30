@@ -13,3 +13,6 @@ By analyzing this data, we hope to identify patterns and risk factors that can h
 - Haya Alfayez - 444200858  
 - Haya Albrahim - 444200657  
 - Ruba Hadlaq - 444200353
+
+### Presentation link
+https://www.canva.com/design/DAGX0DUYOdw/FR5e6XseMvz43LWhVZk0Nw/edit?utm_content=DAGX0DUYOdw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton 
